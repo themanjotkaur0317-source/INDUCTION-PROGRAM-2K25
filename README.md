@@ -1,7 +1,7 @@
 # INDUCTION-PROGRAM-2K25
-From - Manjot Kaur, Branch - RAI, Registration No.- 25104194
+## Heading 1 - From - Manjot Kaur, Branch - RAI, Registration No.- 25104194
 <br>
-##Day-1 (30st july,2025) <bold>
+Day-1 (30st july,2025) <bold>
 In first day, we visit to college gurudwara Sahib and listen kirtan very hartly.Our college organized a tea and snack party and then we come to college auditorium.  We met our requested HOD Ms. Harpreet mam, coordinator Randhir sir and our requested principal sir dr.Sehajpal Singh. We have collected our welcome kit and sit in the auditorium. He had given a warm welcome. He says that the knowledge is not inportant in our life, the person how can convey her skills is also very important. He also advise us to improve our language and become a master in that language.He also told that A Engineer is a person who always want to solve a given problem.<p>
 ##Day - 2 (1st August, 2025)<bold>
 Dr.Priya Darshani (Universal Human Values) - Firstly, she said that what is the goal of our life. She said that what is our aspirations and what are the problems we faced that. What is our personal efforts to be. During this lecture, we realized that if one way is closed then we always pick a another way to complete this problem. I learn there are three basic human aspirants in life. This are - Right understanding, Relationship and our physical facilities to become happy and prosperous in our life. It is the real goal of our life rather than earn good money or get good job.<p>
