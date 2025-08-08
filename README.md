@@ -1,5 +1,5 @@
 # INDUCTION-PROGRAM-2K25
-## Heading 1 - From - Manjot Kaur, Branch - RAI, Registration No.- 25104194
+## From - Manjot Kaur, Branch - RAI, Registration No.- 25104194
 <br>
 Day-1 (30st july,2025) <bold>
 In first day, we visit to college gurudwara Sahib and listen kirtan very hartly.Our college organized a tea and snack party and then we come to college auditorium.  We met our requested HOD Ms. Harpreet mam, coordinator Randhir sir and our requested principal sir dr.Sehajpal Singh. We have collected our welcome kit and sit in the auditorium. He had given a warm welcome. He says that the knowledge is not inportant in our life, the person how can convey her skills is also very important. He also advise us to improve our language and become a master in that language.He also told that A Engineer is a person who always want to solve a given problem.<p>
