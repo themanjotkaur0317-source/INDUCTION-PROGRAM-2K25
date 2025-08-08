@@ -1,21 +1,27 @@
 # INDUCTION-PROGRAM-2K25
 ## From - Manjot Kaur, Branch - RAI, Registration No.- 25104194
 ___
-### heading- 3 Day-1 (30st july,2025) 
+### Day-1 (30st july,2025) 
 In first day, we visit to college gurudwara Sahib and listen kirtan very hartly.Our college organized a tea and snack party and then we come to college auditorium.  We met our requested HOD Ms. Harpreet mam, coordinator Randhir sir and our requested principal sir dr.Sehajpal Singh. We have collected our welcome kit and sit in the auditorium. He had given a warm welcome. He says that the knowledge is not inportant in our life, the person how can convey her skills is also very important. He also advise us to improve our language and become a master in that language.He also told that A Engineer is a person who always want to solve a given problem.<p>
-### heading - 3 Day - 2 (1st August, 2025)<bold>
+___
+###  Day - 2 (1st August, 2025)
 Dr.Priya Darshani (Universal Human Values) - Firstly, she said that what is the goal of our life. She said that what is our aspirations and what are the problems we faced that. What is our personal efforts to be. During this lecture, we realized that if one way is closed then we always pick a another way to complete this problem. I learn there are three basic human aspirants in life. This are - Right understanding, Relationship and our physical facilities to become happy and prosperous in our life. It is the real goal of our life rather than earn good money or get good job.<p>
 Dr. Arvind Dhingra - He told that we dressed up properly in our daily life, and confidently convey our views. He told the different- different clubs and societies of engineer branches in our India.He taught us how we collaborate to solve our projects.<p>
-Day-3 (4th August,2025) -
+___
+### heading-3 Day-3 (4th August,2025) -
 Session by Causmic Club - We have awared the causmic club by our seniors. He had informed our college official websites and causmic club websites on social media. He also informed me how can we use the github aap and how we can login and how we can work on github aap. He also tells us that the different diparments have different clubs. We can participate them at our interest and we won prizes.<p>
 Dr. Priya Darshani- Our aspirants may be closed related to any of right understanding, fulfillments in relationship and physical facilities. We explore how much time and effort we put in our daily life.I explore that in which work can do i excited and in which work can do happiness. In this lecture i realize that human being is a co-existence of self and body.<p>
-Day-4 (5th August,2025) - 
+___
+### heading-3 Day-4 (5th August,2025) - 
 Gautam Murria (Motor Sports) - He tells that if one bolt of the machinery is not work, then it affects the whole machinary.If we not put a  semicolon in progrmming, then our program is not done. Motor sports is a field in which electrical, artificial intelligence, data analytics, computer science, all branches work together.Accuracy and precision is very important in motor sports. Vehicles can be recognized more saftly through motor cars. Motor sports is not only a machines, it creats a mindset. It builds not our physical,but also builds or mentaly mind.It creats social entraction,
  and skills enhasment.<p>
  Mrs.  Shaffy Makar (Millets Super Food) - In early days, we does not eat millets, we only eats rice and floor which is the small part of millets. Dew to this many diseases are comes like cancer, diabeties etc. Millets are nutrient rich, sustainable and gluten free. Millets have been used in traditional medicines.We easily cook the millets but the main thing is that we do not know the correct method of cooking the millets. Millets are nutrients rich. They are the good source of magnesium, carbon and vitamins. Gym peoples use the millets to gain protein in our daily life. We wash the millets 4-5 times before cooking. Many diseases are solved due to eating millets.We does not eat only rice and floor, we eat finger millet,foxtale and pearl also. <p>
-Day - 5 (6st August,2025)
+ __
+### heading-5 Day - 5 (6st August,2025)
 Dr. Perminder Singh (NCC) - NCC stands for National Cadet Cops. During NCC our character, leadership and discipline developed. It's headquarters in Delhi. It's otlook is secure. It is openly in schools and colleges also.It promotes a selfless service. It prepares the youth for adventures activites.It was established in 1948 with the aim of disciplined human beings. Air force, Navy, army is its three main wings.<p>
 Mr. Manpreet Singh (Fitness)- In our daily life, fitness provides a great role.Fitness means that our body is actually fit for our physical activites. It impects on our physically and mentally health. If our physical health is good and our mentally health is not good, then we cannot say that i am a fitness person. A fitness person have good health, strength and flexibility. To her fit body regular exercises and balanced diet is important. A fitted person is always away of streeness. If health is lost, everything is lost. So with studies,a fitness body is important. Because without this we cannot studied, if we cannot studied good then we are not the good human beings. <p>
-Day-6 (7th August, 2025) - 
+___
+### heading-3 Day-6 (7th August, 2025) - 
 Dr.Lakhvir Singh Khanna (CML) - CML refers to the Centre for Multi-Faced Learning. It designed to offer students offurtunity  for learning, growing and devloping various skills.CML aims to foster holistic growth and prepare students for various aspects of life. In this lecture, Lakhvir sir aware the students for Swayam and he wants to every student involved in this couses at their intrest in every semester and the great thing is that the college will provide the fees of that couse if we qualify the exam. He wants that every student improve his skills and take the training outside India without paying any fees. The student perfect in his skills that the company should feel that the person good work fir his company.<p>
 Dr. Jasvir Singh Grewal (NSS) - The National Service Scheme at gndec a student run organization focused on community service and social works. It provides opportunities for team workworkers to engage in various activites like blood donation, plantation and clenation. They develops the leadership and teamwork.It provides opportunities for to interact with community members and various programs. It also aware about social issues.<p> 
+___
